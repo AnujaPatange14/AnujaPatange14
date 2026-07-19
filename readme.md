@@ -1,1 +1,1 @@
-Gajanan Patange is smart dev
+Gajanan Patange is not smart dev
